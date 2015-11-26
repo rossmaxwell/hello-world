@@ -5,5 +5,5 @@
 
 Hi Humans!
 
-Easy for moon tacos to taste better than earth tacos since they ar emore like cardboard 
+Easy for moon tacos to taste better than earth tacos since they are more like cardboard 
 than anything else
